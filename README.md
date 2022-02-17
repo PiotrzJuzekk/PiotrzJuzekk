@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PiotrzJuzekk
+- 👀 I’m interested in big money, beautiful women and fast cars ;-)
+- 🌱 I’m currently learning java, in future maybe more 
+- 💞️ I’m looking to collaborate with people ;-)
+- 📫 How to reach me - piotrz9522@gmail.com /TOPIC - GitHUB ...
